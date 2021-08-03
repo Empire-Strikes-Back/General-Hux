@@ -1,1 +1,1 @@
-i am deathstar-wing program - i do experiments for for DeathStarGame
+i am deathstar-wing program
